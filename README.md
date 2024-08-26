@@ -1,4 +1,4 @@
-[![MasterHead](https://www.theforage.com/blog/careers/cybersecurity)
+[![https://images.app.goo.gl/FpvXZDtYTNQEyWCcA]()
 <h1 align="center">Hi 👋, I'm Quadri</h1>
 <h3 align="center">Cybersecurity</h3>
 
